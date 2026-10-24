@@ -1,8 +1,8 @@
 # Zhang Jian
 
 UE5 Gameplay Programmer / Technical Designer<br>
-Guangzhou, China | 15173062523 | 3076869480@qq.com<br>
-[GitHub](https://github.com/12456df) | [Project Videos](https://www.youtube.com/@JianZ-n8z)
+3076869480@gmail.com<br>
+[The Purge Revenant](https://store.steampowered.com/app/2567300/The_Purge_Revenant/) | [GitHub](https://github.com/12456df) | [Project Videos](https://www.youtube.com/@JianZ-n8z)
 
 ## Profile
 
